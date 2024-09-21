@@ -2,7 +2,7 @@
 - 👀 I’m interested in  chess ,coding,developing
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on web app projects
-- 📫 youcan reach me via 
+- 📫 You can reach me via 
 - whatsapp: +213798808092
 - facebook : https://web.facebook.com/profile.php?id=100024981014322
 - 
